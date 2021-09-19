@@ -1,0 +1,8 @@
+- im coding
+- im modding
+- im overwriting boot configuration data
+- im dualbooting
+- im advanced BIOS/UEFI user
+- i used to create roblox exploits
+- thats it...
+- message me if you want something that you want me to do it (for you0
